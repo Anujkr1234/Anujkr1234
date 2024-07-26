@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **WEB DEVELOPMENT**
 
-- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/anuj-kumar-792854312?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/anuj-kumar-792854312?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/anuj-kumar-792854312](https://www.linkedin.com/in/anuj-kumar-792854312)
 
 - 💬 Ask me about **YES**
 
